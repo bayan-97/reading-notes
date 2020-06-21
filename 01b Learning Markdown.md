@@ -1,5 +1,3 @@
-**my names bayan alalem**
-*mechatronic engineering*
 # the growth mindset
 
 ![pic](https://www.bing.com/images/)
@@ -18,4 +16,6 @@
 
 [mind](https://www.atlassian.com/blog/inside-atlassian/growth-mindset)
 
+**my names bayan alalem**
+*mechatronic engineering*
 
