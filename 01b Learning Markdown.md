@@ -5,11 +5,13 @@
 
 **loving of the learning .also,you will solve any problem you face by this teq.**
 
-*you have start from somewhere*such as :
+*you have start from somewhere* ask yourself :
 
 1-Which aspects of my work am I most proud of?
 
 2-What can I do to improve the aspects I’m less proud of?
+
+3-What went wrong, and how can I make sure it doesn’t happen again?
 
 [mind](https://www.atlassian.com/blog/inside-atlassian/growth-mindset)
 
