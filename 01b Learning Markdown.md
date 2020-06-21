@@ -1,3 +1,5 @@
+**my names bayan alalem**
+*mechatronic engineering*
 # the growth mindset
 
 ![pic](https://www.bing.com/images/)
